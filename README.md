@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...learning logical methods to solve problems 
 - 🌱 I’m currently learning ... coding 
 - 💞️ I’m looking to collaborate on ...software programs
-- 📫 How to reach me ...nc.harshitha30@gmail.com
+- 📫 How to reach me    nc.harshitha30@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
